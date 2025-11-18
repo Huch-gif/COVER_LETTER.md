@@ -44,4 +44,4 @@
 AI-инженер  
 📧 [savvabluz2@gmail.com](mailto:savvabluz2@gmail.com)  
 📞 [+7 (965) 210-9774](tel:+79652109774)  
-[t.me/psycho_assistant_01_bot.](https://github.com/Huch-gif/psycho-assistant) | t.me/savvabluz_bot (ФСК Лидер)
+[t.me/psycho_assistant_01_bot.](https://github.com/Huch-gif/psycho-assistant) |(https://t.me/savvabluz_bot) (ФСК Лидер)
