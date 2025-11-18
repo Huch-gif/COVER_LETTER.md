@@ -38,5 +38,5 @@
 
 — Анатолий  
 AI-инженер  
-[savvabluz2@gmail.com] [@Huch22]  [+7(965)210-9774
-t.me/@Huch22
+[savvabluz2@gmail.com] [@Huch22]  [+7(965)210-9774]
+
